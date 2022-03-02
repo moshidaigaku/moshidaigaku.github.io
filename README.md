@@ -1,0 +1,1 @@
+# moshidaigaku.github.io
