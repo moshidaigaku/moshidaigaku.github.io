@@ -1,1 +1,1 @@
-# moshidaigaku.github.io-home_kozin
+# moshidaigaku.github.io
